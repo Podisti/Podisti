@@ -1,4 +1,4 @@
-## Hi there 👋
+## Blood For The Emperor, Skulls For The Golden Throne! 🦊
 
 <!--
 **Podisti/Podisti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
